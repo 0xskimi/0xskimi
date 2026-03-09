@@ -6,5 +6,5 @@ I design and build the product end-to-end.
 
 —
 [Twitter / X](https://www.x.com/0xskimi/)  //  
-[Portfolio](https://www.0xskimi.framer.ai/)  //
+[Portfolio](https://0xskimi.framer.ai/)  //
 [LinkedIn](https://www.linkedin.com/in/muawiya/)
